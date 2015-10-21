@@ -12,3 +12,8 @@ Translated by Taeyoon Choi
 
 Edited and proofread by Achim Koh
 ****
+
+Notes:
+
+
+The title may be 통일 which means reunification of countries, 상봉 which means meeting of families that were separated, or 재결합 which means reunion, reconcile. In the end, I chose the last one because it can mean both political reunification and meeting of families. 
