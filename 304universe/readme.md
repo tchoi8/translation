@@ -20,7 +20,9 @@ seven persons died
 
 eight persons died 
 
-nine persons died 
+nine persons  
+
+nine universes lost its light  
 
 ten persons died
 
@@ -38,11 +40,13 @@ sixteen persons died
 
 seventeen persons died
 
+eighteen persons 
+
 eighteen universes lost its light 
 
-the distant universes, counting all of them, this song will become longer
+Counting all of the distant universes, this song will only become longer
 
-say you are busy, forget it you say, for the most important things
+say you are busy, forget it you say, for the more important things
 
 the universe's light is diminishing, but there are greater things
 
@@ -50,17 +54,19 @@ ninteen persons died
 
 twenty persons died
 
-twenty one persons died
+twenty one persons
 
 twenty two persons died
 
 twenty three persons died
 
-twenty four persons died
+twenty four persons
 
 twenty five persons died
 
 twenty six persons died 
+
+twenty seven persons 
 
 twenty seven universes lost its light 
 
@@ -80,11 +86,13 @@ thirty four persons
 
 thirty five persons 
 
-thurty six universes lost its light
+thirty six persons 
 
-distant universes, counting all of them, this song will only become longer
+thirty six universes lost its light
 
-say you are busy, forget it -  you say, for the more important things
+the distant universes, counting all of them, this song will only become longer
+
+say you are busy, forget it you say, for the more important things
 
 the universe's light is diminishing, but there are greater things 
 
